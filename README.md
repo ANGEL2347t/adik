@@ -1,0 +1,2 @@
+# adik
+adilet
